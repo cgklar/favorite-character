@@ -11,3 +11,5 @@ Sean Justin Penn ist ein vielfach preisgekrönter US-amerikanischer Schauspieler
 * Anfang 2011 wurde Penn von Hugo Chávez, dem Präsidenten Venezuelas, als möglicher US-Botschafter in dem südamerikanischen Land vorgeschlagen. Chávez bezeichnete Penn als „Freund“.
 
 * Nach dem Erdbeben in Haiti 2010 gründete Penn die Hilfsorganisation JP/HRO. Auf dem Gelände eines ehemaligen Golfplatzes unterhält er mit seiner Hilfsorganisation ein Flüchtlingslager, auf dem sich zeitweise 55.000 Bewohner aufhalten. Für dieses Engagement wurde er im April 2012 mit dem Peace Summit Award des World Summit of Nobel Peace Laureates ausgezeichnet.
+
+> Ich glaube nicht, dass Sie Ihre Talente auf die Toilettenschüssel legen können, ohne dass sie gehen.
